@@ -11,6 +11,6 @@
 
 
 ![photo1689632627 (15)](https://github.com/vzr32sek/PAYPAL-FAKE-MONEY-SEND-PAGE-SCRIPT-SOURCE-CODE/blob/main/U79OfC1.png?raw=true)
-![photo1689632627 (16)](https://github.com/ferre1raa/TikTok-Fake-Coins-Recharge-Page/assets/140260560/d6bdcc30-6c72-4c8a-a054-ccaf64473b98)
-![photo1689632627 (17)](https://github.com/ferre1raa/TikTok-Fake-Coins-Recharge-Page/assets/140260560/a55c9d4b-3b18-4c80-afed-d7f634301e07)
-![photo1689632627 (18)](https://github.com/ferre1raa/TikTok-Fake-Coins-Recharge-Page/assets/140260560/aedeb0ce-7887-49ba-81f8-dda52fa7d37f)
+![photo1689632627 (16)](https://github.com/vzr32sek/PAYPAL-FAKE-MONEY-SEND-PAGE-SCRIPT-SOURCE-CODE/blob/main/99Esv7L.png?raw=true)
+![photo1689632627 (17)](https://github.com/vzr32sek/PAYPAL-FAKE-MONEY-SEND-PAGE-SCRIPT-SOURCE-CODE/blob/main/Yu629D3.png?raw=true)
+![photo1689632627 (18)](https://github.com/vzr32sek/PAYPAL-FAKE-MONEY-SEND-PAGE-SCRIPT-SOURCE-CODE/blob/main/luaC2lO.png?raw=true)
